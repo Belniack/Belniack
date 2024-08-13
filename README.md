@@ -1,4 +1,4 @@
-## Hi there 👋
+## Bem-vindo ao meu Perfil!
 
 Meu nome é Amanda Belniack
 
